@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @F0UR4
 - 👀 I’m interested in expand, expaND, exPAND, EXPAND, and crabs!
 - 🌱 I’m currently learning how to function as a basic human, your patience is appreciated.
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on... You definitely don't want to collaborate with me!
+- 📫 How to reach me- Send your household homing pigeon!
